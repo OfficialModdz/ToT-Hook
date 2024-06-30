@@ -1,5 +1,5 @@
 > [!NOTE]
-> I have been super busy lately so I haven't been able to do much here. Excpect updates soon! No ETA :/
+> I have been super busy lately so I haven't been able to do much here. Expect updates soon! No ETA :/
 
 # ![TOT Hook](https://github.com/OfficialModdz/ToT-Hook/assets/155321100/cea0694e-1645-43b8-bf52-aa4cd4de1e14)
 
