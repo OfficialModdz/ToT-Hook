@@ -1,3 +1,6 @@
+> [!NOTE]
+> I have been super busy lately so I haven't been able to do much here. Excpect updates soon! No ETA :/
+
 # ![TOT Hook](https://github.com/OfficialModdz/ToT-Hook/assets/155321100/cea0694e-1645-43b8-bf52-aa4cd4de1e14)
 
 # <img src="https://i.ibb.co/591ffw6/TOT.jpg" width="32" height="32" style="max-width: 50%;"> The Outlast Trials Hook <img src="https://i.ibb.co/591ffw6/TOT.jpg" width="32" height="32" style="max-width: 50%;"> <a href="https://www.unknowncheats.me/forum/members/2905552.html" style="float: right;"><img src="https://i.ibb.co/mG5YZNQ/UCSplash.png" img align="right" width="32" height="32"></a>
